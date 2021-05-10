@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **techhamara91@gmail.com**
 
-- ⚡ Fun fact **I think i am Create Shumthing New**
+- ⚡ Fun fact **I think i am Create Something New**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
